@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LuyandaMbanjwa.
+- 👀 I’m interested in learnerships or employment in the software development world.
+- 🌱 I’m currently learning Diploma in ICT in Application Development.
+- 📫 How to reach me: Luyandambanjwa19@gmail.com.
